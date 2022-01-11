@@ -1,0 +1,1 @@
+# Nortygaz10.github.io
